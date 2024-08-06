@@ -9,6 +9,7 @@ meu nome é Beatriz
 ### vc entrar em contato comigo 📫
 
 beatrizbiagomes97@gmail.com
+
 @bia_zinha.a
 
-
+![.](https://tenor.com/pt-BR/view/cute-cat-kitten-excited-dance-gif-16858148)
